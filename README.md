@@ -1,0 +1,2 @@
+# hacker
+Mahu belajar
